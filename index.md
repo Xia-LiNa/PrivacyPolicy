@@ -30,7 +30,7 @@ This Privacy Policy may be updated from time to time for any reason. We will not
 
 ### Contact me
 
-If you have any questions regarding privacy while using the Application, or have questions about me practices, please contact me via email at yu_tian_jian@163.com
+If you have any questions regarding privacy while using the Application, or have questions about me practices, please contact me via email at xia_lina@sina.cn
 
 ## 隐私政策
 
@@ -66,4 +66,4 @@ If you have any questions regarding privacy while using the Application, or have
 
 ### 7.联系方式
 
-- 如果在隐私政策方面您有任何疑问，请联系：yu_tian_jian@163.com
+- 如果在隐私政策方面您有任何疑问，请联系：xia_lina@sina.cn
